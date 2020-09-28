@@ -1,1 +1,1 @@
-# This is the homepage of Bingyi Chen
+# Welcome to the homepage of Bingyi Chen
